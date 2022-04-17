@@ -1,1 +1,1 @@
-# Just-Go---Maldives
+# Just-Go-Maldives
